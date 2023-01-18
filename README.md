@@ -9,14 +9,15 @@ things about me :-)
 
 you can reach me and/or view my current & prior works at
 -
+- https://amariofan12.neocities.com \
+  my website, home to art and links to places i'm on
+
 - https://www.twitch.tv/amariofan12 \
   where i want to stream (see: lack of motivation)
 
 - https://twitter.com/AMariofan12 \
   where i post inane ramblings and my art
   
-- https://soundcloud.com/amariofan12 \
-  where once posted (and could post) music
 
 - a dozen other places\
   if you see 'AMariofan12' anywhere, it's probably me
