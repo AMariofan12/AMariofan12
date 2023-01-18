@@ -9,7 +9,7 @@ things about me :-)
 
 you can reach me and/or view my current & prior works at
 -
-- https://amariofan12.neocities.com \
+- https://amariofan12.neocities.org \
   my website, home to art and links to places i'm on
 
 - https://www.twitch.tv/amariofan12 \
