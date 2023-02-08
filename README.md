@@ -2,7 +2,8 @@
 
 things about me :•)
 -
-- i make a the digital art
+- i create digital art
+- i also make 3D models
 - unsure if i really want to make a the video's game (still passionate about them)
 - i know an amount of javascript and python, but i am by no means a programmer
 - i have the socks, however
