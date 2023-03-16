@@ -1,4 +1,4 @@
-"world renown twitch streamer "supermariofan85" enjoying retirement as an aspiring game designer, with only 63 years of carpel tunnel holding them back"
+"world renown twitch streamer "supermariofan85" enjoying retirement as an aspiring digital artist, with only 63 years of carpel tunnel holding them back"
 
 things about me :•)
 -
